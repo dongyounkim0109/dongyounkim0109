@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning about healthcare 
 - 👯 I’m looking to collaborate on team project/startup 
 - 🤔 I’m looking for help with AI & deep learning 
-- 💬 Ask me about my hobbies including film/drawing  
+- 💬 Ask me about my hobbies including photography/drawing  
 - 📫 How to reach me: via email
 
 
