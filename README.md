@@ -4,7 +4,6 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on 신경계 단위과정
 - 🌱 I’m currently learning about healthcare 
 - 👯 I’m looking to collaborate on team project/startup 
 - 🤔 I’m looking for help with AI & deep learning 
