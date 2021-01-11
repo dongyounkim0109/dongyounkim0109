@@ -9,5 +9,8 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with AI & deep learning 
 - 💬 Ask me about my hobbies including photography/drawing  
 - 📫 How to reach me: via email
++20210111 : 지금 보고 있는 영화는 마틴 에덴입니다. :) 
+
+
 
 
